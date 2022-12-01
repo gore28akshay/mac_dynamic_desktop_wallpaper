@@ -1,0 +1,1 @@
+# mac_dynamic_desktop_wallpaper
